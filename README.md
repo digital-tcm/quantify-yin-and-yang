@@ -1,6 +1,12 @@
 # quantify-yin-and-yang
 
 
+
+
+http://www.zgkjcx.com/Article/ShowArticle.asp?ArticleID=4476&Page=1
+
+
+
 https://www.dadaojiayuan.com/ddjy_67/588.html
 
 https://www.engineering.org.cn/ch/article/19234/detail
